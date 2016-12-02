@@ -6,6 +6,8 @@ I get a lot of questions by email. This way anyone can read the answer!
 
 Anything means *anything*. Personal questions. Money. Work. Life. Code. Whatever.
 
+You can also find me on [Twitter](https://twitter.com/sethholladay) and [LinkedIn](https://linkedin.com/in/sholladay).
+
 -
 
 ### Guidelines
